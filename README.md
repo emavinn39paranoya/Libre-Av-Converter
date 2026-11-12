@@ -220,4 +220,4 @@ Libre AV Converter is the **full free version** of the software, providing all f
 Unlock the world of multimedia with **Libre AV Converter** today! Download now and experience the full power of multimedia conversion at your fingertips.
 
 ---
-**Last updated:** 2026-11-11 17:47:22 UTC
+**Last updated:** 2026-11-12 00:19:51 UTC
